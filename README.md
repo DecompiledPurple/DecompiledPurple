@@ -1,4 +1,4 @@
-You can call me Purple 
+You can call me Purple 🪐
 
 Currently learning roblox studio gameDev and have been for 2 years, and planning to branch off into other game engines. 
 
@@ -7,7 +7,7 @@ I also love playing Minecraft, Apex Legends, and TitanFall 2
 
 Swords in general are cool.
 
-Contact me through discord if you'd like. 🪐
+Contact me through discord if you'd like: purple.b
 
 
 <!---
