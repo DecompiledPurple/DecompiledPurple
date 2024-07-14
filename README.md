@@ -1,4 +1,4 @@
-You can call me Purple 🪐
+You can call me Purple 
 
 Currently learning roblox studio gameDev and have been for 2 years.
 Planning to branch off into other game engines. 
