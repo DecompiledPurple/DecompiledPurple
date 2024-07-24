@@ -8,7 +8,7 @@ I also love playing Minecraft, Apex Legends, and TitanFall 2
 
 Swords in general are cool.
 
-Contact me through discord if you'd like: purple.b
+Contact me through discord if you'd like: decompiledpurple
 
 
 <!---
